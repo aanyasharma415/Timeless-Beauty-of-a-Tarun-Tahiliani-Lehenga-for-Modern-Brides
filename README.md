@@ -9,7 +9,7 @@ There is something undeniably magical about a tarun tahiliani lehenga. Whether y
 <img width="1200" height="1800" alt="image" src="https://github.com/user-attachments/assets/0d5f17bd-8f1b-49a8-a9e8-505199c488d1" />
 
 
-One of the most striking aspects of the tarun tahiliani lehenga is how it blends intricate detailing with a lightness of form. This makes it ideal for multi-event weddings where brides need to look stunning but also move freely. Each piece is designed in consultation with skilled artisans who bring generations of expertise to every stitch. The lehenga’s fabrics—ranging from pure silks to organza and tulle—are carefully selected to complement its embellishments, ensuring a look that’s rich without feeling overwhelming.
+One of the most striking aspects of the **[tarun tahiliani lehenga](https://shop.taruntahiliani.com/collections/lehenga-for-women)** is how it blends intricate detailing with a lightness of form. This makes it ideal for multi-event weddings where brides need to look stunning but also move freely. Each piece is designed in consultation with skilled artisans who bring generations of expertise to every stitch. The lehenga’s fabrics—ranging from pure silks to organza and tulle—are carefully selected to complement its embellishments, ensuring a look that’s rich without feeling overwhelming.
 
 **The Designer’s Signature**
 
@@ -50,4 +50,4 @@ Guests often find themselves asking about the designer when they see a bride in 
 
 **Conclusion**
 
-For any bride who dreams of an outfit that embodies elegance, craftsmanship and individuality, a tarun tahiliani lehenga is an unrivalled choice. Each piece is a testament to the designer’s dedication to reviving India’s textile heritage while keeping it relevant for modern celebrations. With tarun tahiliani continuing to redefine bridal fashion, his lehengas remain a symbol of timeless style and innovation for brides everywhere.
+For any bride who dreams of an outfit that embodies elegance, craftsmanship and individuality, a tarun tahiliani lehenga is an unrivalled choice. Each piece is a testament to the designer’s dedication to reviving India’s textile heritage while keeping it relevant for modern celebrations. With **[tarun tahiliani](https://shop.taruntahiliani.com/)** continuing to redefine bridal fashion, his lehengas remain a symbol of timeless style and innovation for brides everywhere.
